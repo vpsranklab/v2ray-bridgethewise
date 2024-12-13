@@ -1,4 +1,4 @@
-# Bridge The Wise：高端V2Ray机场，IPLC专线与经济线路选择，支持2天低价试用
+# Bridge The Wise官方地址
 
 始于名言：智者建桥，愚者建墙。
 
