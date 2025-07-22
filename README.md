@@ -1,4 +1,4 @@
-# Bridge The Wise机场 - 官网网站发布页
+# Bridge The Wise机场 - 官方网站发布页
 
 始于名言：智者建桥，愚者建墙。
 
